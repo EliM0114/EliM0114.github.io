@@ -1,6 +1,6 @@
 ---
 title: EuroTrip Summer 2023
-date: 2024-02-14 12:33:00 +0000
+date: 2024-02-14 04:33:00 +0000
 catergories: []
 tags: []
 ---
@@ -10,11 +10,11 @@ tags: []
 In this post, I will be going through my week long travel vacation through central Europe. This took place after my summer abroad stint in Rome in the summer of 2023. In total I spent 8 days visiting Vienna, Prague, and Berlin. This is a place for me to recount my trip from my perspective today. 
 
 ## **Vienna**
-To get to Vienna from Rome, it is a 12 hour train ride. My travel companion, Jackson, and I elected to take a sleeper train to maximize the day time we had in Vienna. 
+To get to Vienna from Rome, it is a 12-hour train ride. My travel companion, Jackson, and I elected to take a sleeper train to maximize the daytime we had in Vienna. 
 
-From Rome we had about an hour layover in Bologna to catch the long train. During this short break, I helped a confused woman buy a ticket. The station was surprisingly busy for 11:30 p.m. As our departure time was nearing, we could not find the train marked "Wien". It was not there! After asking around we eventually determined that the train was marked for a closer destination with half the train continuing on to Vienna? We were only about 50% sure this was the correct, and there was another American family just as confused and angry with German infrastructure. 
+From Rome, we had about an hour's layover in Bologna to catch the long train. During this short break, I helped a confused woman buy a ticket. The station was surprisingly busy at 11:30 p.m. As our departure time was nearing, we could not find the train marked "Wien". It was not there! After asking around, we eventually determined that the train listed under a closer destination with half the train continuing to Vienna. We were only about 50% sure this was correct. There was an American family in the same boat being confused with German infrastructure. 
 
-Our sleeper cart conisted of 6 firm beds, 2 of which were occupied by a German couple, where Jackson and I had the top bunk on each side. It was a bumpy ride so I popped some melatonin in hope of achieving a little bit of sleep throughout the night. It was a better night of sleep than I expected given that I slept fully clothed, no pillow, shoes on. Our cabin was awoken by an extremly nice and bald Wiener who was to take our breakfast order. I chose to have the complimentary coffee and a bread roll with jam. This meal was surpsingly appetizing. 12 short hours later, we arrived in Wien.
+Our sleeper cart consisted of six firm beds, three stacked on each side. Two were occupied by a German couple with the top bunk occupied by Jackson and I. It was a bumpy ride, so I popped some melatonin hoping to sleep throughout the night. It was a better night of sleep than I expected given my sleeping arrangments. I slept fully clothed, with shoes on, and with no pillow or blanket. Our cabin awoke to an extremely nice and bald Wiener who was to take our breakfast order. I chose to have the complimentary coffee and a bread roll with jam. This meal was surprisingly appetizing. Twelve short hours later, we arrived in Wien.
 
 ### Day 1 
 <sup>June 23, 2023<sup>
@@ -28,7 +28,6 @@ The Four Season's concert was beautiful, especially given the setting. My mind w
 Back at the hostel, we socialized a little bit with some of the residents. A Canadian master's student releasing some stress froma big speech she was about to give in Berlin and what she claimed she was not ready for, a French student named Leslie who had the strongest accent I have ever heard and figuring out her name was as far as I got, and a Spanish student all getting their travels in. 
 
 I tuned in early for bed in our room of 6 people.
-
 ### Day 2
 <sup>June 24, 2023<sup>
 
