@@ -1,6 +1,6 @@
 ---
 title: EuroTrip Summer 2023
-date: 2024-02-14 04:33:00 +0000
+date: 2024-02-15 04:33:00 +0000
 catergories: []
 tags: []
 ---
@@ -44,7 +44,7 @@ Late morning train on Day 3 to Prague was the only deadline we had to hit. Next 
 
 Vienna is an extremly clean city. It has a Paris vibe to it, but much cleaner and a little less extravageant. I did not get enough time to properly explore the culture and history of the city. There is lots to do, but it is not super condensed. The town square near Albertina Platz was a little crowded, but the rest of the city was tranquil. 
 
-## Prague
+## **Prague**
 
 ### Day 3
 
