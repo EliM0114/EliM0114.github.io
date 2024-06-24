@@ -15,13 +15,7 @@ My current self is a product of every single past experience I have had. Whether
 
 I have thought I had a set boundaries of how I interact with the world, but this previous set boundary has seemed to move, expand, or change in some form to a position it was not at previously. 
 
+Change is okay, but our values should not. Set values about who you want to be in the future, and be unapologetic for sticking to your own truths. Do not drink the kool-aid of the world to abandon these values. It might taste good now, but will give you cavaties.
+We will discover more about ourselves and have to append these values. In the moment, if you know who you are and stick to it, I don't think you can complain.
 
-Living in the moment.
 
-Wanting the past and future change. 
-
-We must change ourselves for the good. 
-
-Self actualiziaton 
-
-If  inevitable change seems to a curse.
