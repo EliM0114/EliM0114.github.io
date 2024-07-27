@@ -1,6 +1,6 @@
 ---
 title: Where do you draw the line?
-date: 2024-07-27 04:33:00 +0000
+date: 2024-06-22 04:33:00 +0000
 catergories: []
 tags: []
 ---
